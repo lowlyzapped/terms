@@ -2,3 +2,5 @@
 
 - You accept all responsibility for streaming copyrighted material.  
 - These terms may be changed without notice.  
+
+effective 9/7/22
